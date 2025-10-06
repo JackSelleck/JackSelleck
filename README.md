@@ -1,1 +1,1 @@
-<img width="2643" height="1076" alt="Lifeseeker_Eyes - Copy" src="https://github.com/user-attachments/assets/192a1522-47de-4f43-90b3-d8da44cb08c4" />
+<img width="2643" height="1034" alt="Lifeseeker_Eyes - Copy" src="https://github.com/user-attachments/assets/cf080d12-257d-4684-bdd8-8b282afea7fe" />
